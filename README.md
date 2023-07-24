@@ -1,1 +1,1 @@
-# keio_quant_maqro-end-of-term
+#１までしかできませんでした。申し訳ございません。
